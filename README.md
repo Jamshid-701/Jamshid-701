@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-##Jamshid-701/Jamshid-701** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
 
 
 ## Ijtimoiy Tarmoqlar
